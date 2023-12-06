@@ -1,4 +1,2 @@
-# Flushies.github.io
-Nathaniel Joshua H. Engco
-
-# Ogilvie
+# Cathedral 
+Auhtor:Nathaniel Joshua H. Engco
