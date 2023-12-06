@@ -1,7 +1,7 @@
 
 
 
-![/\/\/\/\/\/\/\/\](https://i.pinimg.com/564x/35/45/0f/35450f6f330c0e3a1d0ee0cf76d67f1a.jpg)
+![/](https://i.pinimg.com/564x/35/45/0f/35450f6f330c0e3a1d0ee0cf76d67f1a.jpg)
 
 
 
