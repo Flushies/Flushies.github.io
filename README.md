@@ -1,2 +1,2 @@
 # Cathedral 
-Auhtor:Nathaniel Joshua H. Engco
+Nathaniel Joshua H. Engco
